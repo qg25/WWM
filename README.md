@@ -1,10 +1,10 @@
 # QFYY - Qing Feng Yu Yue 青锋玉月 :full_moon:
 
-### 青锋出鞘映玉月，江湖同心共风流。于刀光剑影之间，我们以义结缘，以剑会友。  
-### 青锋玉月，不问出身，不论名利。唯求真心相待，同闯江湖，共绘传奇。  
-### 愿每一位行于此道者，皆如青锋般无尘，如玉月般清明。  
+### 青锋出鞘映玉月，江湖同心共风流。于刀光剑影之间，我们以义结缘，以剑会友。
+### 青锋玉月，不问出身，不论名利。唯求真心相待，同闯江湖，共绘传奇。
+### 愿每一位行于此道者，皆如青锋般无尘，如玉月般清明。
 
-**_When the emerald blade shines beneath the jade moon, kindred spirits gather to roam the martial world. Between flashing swords and swirling shadows, we forge bonds of loyalty and friendship._**  
+### When the emerald blade shines beneath the jade moon, kindred spirits gather to roam the martial world. Between flashing swords and swirling shadows, we forge bonds of loyalty and friendship.
 **_Qingfeng Yuyue welcomes the righteous without regard for background or fame. Here we seek only sincerity, venturing together to create our legend._**  
 **_May all who walk this path remain spotless as a fresh blade and clear as a moonlit night._**  
 
